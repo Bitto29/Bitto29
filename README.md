@@ -4,8 +4,9 @@ I'm Bitto, a creative and tech-savvy individual who loves diving into new techno
 
 ## Get in Touch 📫
 
-- Connect with me on [Facebook](https://www.facebook.com/profile.php?id=100077225097511) or [here](https://www.facebook.com/basit.iqbal.bitto)
-- Find me on [LinkedIn](https://www.linkedin.com/in/basit-iqbal-bitto-60bb8626b)
+- Connect with me on [Facebook](https://www.facebook.com/bitto29) or [here](https://www.facebook.com/aibro29)
+- Find me on [LinkedIn](https://www.linkedin.com/in/bitto29)
+- My account on [Instagram](https://www.instagram.com/basit.iqbal.bitto) 
 - Let's chat on [Discord](https://discord.gg/8v9JhUPj)
 - Explore my work on [GitHub](https://github.com/Bitto29)
 
